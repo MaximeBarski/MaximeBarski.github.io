@@ -1,3 +1,0 @@
-# MaximeBarski.github.io
-
-# Désolé...
